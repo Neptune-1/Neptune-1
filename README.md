@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Neptune-1
 - 👀 I’m interested in AI, mobile development and physics
 - 🌱 I’m currently learning flutter, physics
-- 📫 How to reach me Telegram:@merkur0000, Instagram:@merkur0000, 
+- 📫 You can reach me on Telegram:@merkur0000, Instagram:@merkur0000, 
